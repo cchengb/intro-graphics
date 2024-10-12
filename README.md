@@ -11,6 +11,6 @@ Project#2 Transfomations - Animate a Helicopter - Jupiter or Bust
 Video link: https://media.oregonstate.edu/media/t/1_xj3aza4n
 
 
-Project#3 lighting
+Project#3 lighting - Shinning Animals
 
 Video Link: https://media.oregonstate.edu/media/t/1_eei5jvm4
